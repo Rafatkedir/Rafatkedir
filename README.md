@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Rafatkedir
 - 👀 I’m interested in coding and space staffs
-- 🌱 I’m currently learning 12 grade at ahighschool
+- 🌱 I have currently finished 12 grade at ahighschool
 - 💞️ I’m looking to collaborate on everything
-- 📫 How to reach me you can reach me by my email address Rafatk2021@gmail.com
+- 📫 How to reach me? you can reach me by my email address Rafatk2021@gmail.com
 
 
 <!---
